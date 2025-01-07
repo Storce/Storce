@@ -1,4 +1,4 @@
-### Hi! I'm Storce. My real name is Joe Wang
+### Hi! I'm Storce 🌴
 
 <!--
 **Storce/Storce** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
